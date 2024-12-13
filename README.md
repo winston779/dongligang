@@ -1,6 +1,6 @@
 # 动力港机场官网地址
 
-最新地址：[dongligang.xyz](https://dkwi1-2974.dongligang.xyz/#/register?code=f36tEuXd)
+最新地址：[dongligang.xyz](site01.dongligang.vip/login?code=f36tEuXd)
 
 ## 动力港介绍
 
